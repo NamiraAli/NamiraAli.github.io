@@ -1,1 +1,0 @@
-# NamiraAli.github.io
